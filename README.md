@@ -6,4 +6,4 @@ Here are some ideas to get you started
 
 🐴
 
-![](https://media.tenor.com/ADeW9wCviEoAAAAd/nashe.gif)
+https://media.tenor.com/ADeW9wCviEoAAAAd/nashe.gif
