@@ -7,8 +7,6 @@ Here are some ideas to get you started:
 
 🐴
 
-![](https://media.tenor.com/TCzfmNLrLVIAAAAi/iloveyou-sweetdreams.gif)
-
 ![](https://media.tenor.com/5edilfs8l0YAAAAd/ojo-de-gato.gif)
  
 
